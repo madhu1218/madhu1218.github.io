@@ -1,2 +1,2 @@
-# madhu1218.github.io
+# madhusubbiah.tech
 Personal Website
